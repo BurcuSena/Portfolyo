@@ -1,0 +1,1 @@
+Kodluyoruz, YGK Projesi kapsamında yapmış olduğum portfolyo.
